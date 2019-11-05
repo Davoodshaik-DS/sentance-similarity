@@ -1,4 +1,4 @@
-try youtr own sentances
+try your own sentances
           OR
 try the sentance below:
 
